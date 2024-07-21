@@ -1,0 +1,1 @@
+# sript-that-bypass-WINDOWS-8-10-activation-key
